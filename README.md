@@ -56,3 +56,5 @@ Experience
 Assortment.
 One more reason for the success of Walmart is purchasing products from local manufacturers in a bulk in one go and selling in small quantities. Buying from local manufacturers is the benefit for both. Buying more products from local manufacturers means they are creating more jobs and they reduce the unemployment rate. They should provide good quality products at a lower price to maintain a good relationship with customers and continue to get profits in business.
 
+
+# link to the video: https://drive.google.com/file/d/1Cqtl2FO4Eo5kBpNQJL9dCQjmYIXe3G5f/view?usp=share_link
